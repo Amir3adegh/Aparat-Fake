@@ -24,6 +24,14 @@ Aparat Fake ( Fallower / View / Comment / Like )
 
 
 ![image](https://i.imgur.com/qC59yHT.png)
+![image](https://i.imgur.com/dXghpdo.png)
+![image](https://i.imgur.com/mAdRQ9j.png)
+![image](https://i.imgur.com/X1IweKY.png)
+![image](https://i.imgur.com/yWzWxCU.png)
+
+------------------------------------------
+![image](https://i.imgur.com/YAOWmJd.png)
+![image](https://i.imgur.com/RvutATK.png)
 
 
 
